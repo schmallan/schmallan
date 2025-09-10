@@ -1,3 +1,3 @@
-## I write code and get in fights
+## something something computer science blah blah blah
 
-Peddie '28
+(Peddie '28)
